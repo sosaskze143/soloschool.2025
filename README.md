@@ -1,0 +1,1 @@
+# soloschool.2025
